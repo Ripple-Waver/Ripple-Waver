@@ -1,4 +1,4 @@
-### Hi there 👋
+### You still have time! Please Repent YHWH Kingdom is Near!🕌🇮🇱
 
 <!--
 **Ripple-Waver/Ripple-Waver** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
